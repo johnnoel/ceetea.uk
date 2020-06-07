@@ -4,3 +4,7 @@
 [submodule "themes/tale"]
 	path = themes/tale
 	url = https://github.com/EmielH/tale-hugo.git
+[submodule "public"]
+	path = public
+	url = https://github.com/johnnoel/johnnoel.github.io.git
+	branch = master
