@@ -1,0 +1,12 @@
+baseURL = "https://ceetea.uk/"
+languageCode = "en-gb"
+title = "ceetea"
+theme = "tale"
+
+[Author]
+  name = "ceetea"
+
+[markup]
+  [markup.goldmark]
+    [markup.goldmark.renderer]
+      unsafe = true
