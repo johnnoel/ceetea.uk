@@ -1,0 +1,34 @@
+---
+title: "Fur Trade"
+date: 2020-06-23T20:16:30Z
+draft: false
+author: ceetea
+summary: “Hello there little one.”
+---
+
+<figure>
+<img src="/img/2020/06/fur-trade-1.jpg" alt="">
+<figcaption>Original image by yohan1754 | <a href="https://twitter.com/yohan1754/status/1273791343500816385">Twitter</a> | Artist links: <a href="http://pixiv.me/sig5569">Pixiv</a></figcaption>
+</figure>
+
+“Hello there little one.” The curious weasel looked up at Naomi with sharp, onyx black eyes. It had been building up the courage to investigate her and her makeshift hide for the last half an hour, darting in and about the surrounding thickets of undergrowth.
+
+The creature skittered towards the prone photographer, furtively nudging her waterproofs and gloves with coarse whiskers. It tried its luck with the slick plastic handle of her umbrella, its interest waning when it didn’t yield to its teeth.
+
+The fauna of the plain seemed increasingly at ease with Naomi’s regular pilgrimage to this area: wild yaks and ibex that had at first baulked at her presence now only gave her a wary, wide berth. Six times she’d woken at evening twilight, gathered her gear and trekked from her campsite towards the slopes at the base of Nun Kun for a night of waiting. Prolonged, patient waiting.
+
+She could have set up camera traps like her *colleagues*, but the shots they took were anodyne and impersonal. More surveillance than photography. “That’s kind of the point though” her superior had reminded her after an extended stay in rural China. “We track, record, research and move on.” Naomi wasn’t about to let the threat of her conservation research grant being pulled rob her of an encounter with a Pallas’s Cat.
+
+So she waited. Infrared camera ready, ground sheet laid, the long nights stretching out. When the sky was clear she tracked the moon passing overhead, constellations gently spinning above her. Clouds sunk the entire valley into a viscous darkness where every shifting rock or rustle of grass loomed large in the senses. The rain this night had been a welcome change, sloughing off the humidity and summer mugginess. That its pleasant susurrations had almost sent her to sleep was a fact she kept to herself.
+
+The weasel nibbled at the exposed cowl of her camera. “Hey,” she whispered, shooing it away with numb fingers. Startled, it scampered away with an aggrieved chirring sound.
+
+The mountainside caves and crevices were where *octolobus manul* lived, leaving only to mate and to hunt, Naomi hoped the weasel population was enticement enough for them to prowl the area. One of the trappers she had spoken to in her abysmal Ladakhi had said they’d seen the cats in this area. Whether that was true or whether they just wanted to see the lengths this peculiar foreigner would go to was still up for debate. A gnawing part of her mind said that if the weasels were so brazen as to approach her - a metre and a half of bipedal interloper - they likely didn’t fear predators.
+
+She smiled, idly remembering her journey here through the heartland of China and Tibet and then the elevation whiplash across the undulating landscapes of northern India. Local transport held together with rust and good intentions and blisters upon endless blisters. Back when she’d joined the five year mission to track endangered species, she’d carried her bulging backpack like a snail. But with every hundred miles she shed another inconvenient bit of weight. Another thing she could do without, donated or recycled. Now her most precious possession was a cache of memory cards, photos of all and sundry. Market stalls to mountain ranges.
+
+So here she lay, sodden and aching after another night bereft of feline encounters. Even through the drizzly half-light Naomi could tell the sun had risen above the valley walls. It would be unlikely that-
+
+Golden eyes like crystalline fire at dawn stared intently at her. It was barely ten metres away and clamped in its jaws was a limp and familiar looking weasel. Nothing moved in a moment that inflated to fill the space between them. Raindrops clung to ash grey, bristled fur, predatory muscles tensed. Naomi’s thoughts tunnelled, she was witnessing something primal and awe inspiring. She dared not breathe. And quick as a heartbeat, the cat was gone, prey captured.
+
+She breathed anew, a grin stretching from ear to ear. She knew she hadn’t pressed the shutter, and maybe just for tonight, didn’t really care.
