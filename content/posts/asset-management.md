@@ -33,7 +33,7 @@ I took out the box from my shoulder bag. About the size of a hefty hardback, I s
 
 The man’s jaw was clenched as if to stop himself salivating. I had already been paid, in full and the thought of just sublimating into some hedonistic binge in a backwater town had crossed my mind. Sitting here now, I was glad I hadn’t. If it wasn’t the box making me feel like I wanted to pull my fingernails out, it was the man knotting my stomach and ringing my fight-or-flight bell.
 
-“And you didn’t open the box.” It wasn’t a question. Eyes still fixed on the box.
+“And you didn’t open it.” It wasn’t a question. Eyes still fixed on the box.
 
 “As instructed.” I answered anyway.
 
