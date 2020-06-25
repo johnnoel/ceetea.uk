@@ -1,7 +1,7 @@
 ---
 title: "Asset Management"
 date: 2020-06-25T21:17:22Z
-draft: true
+draft: false
 author: ceetea
 summary: I was a mess.
 ---
