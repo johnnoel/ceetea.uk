@@ -1,0 +1,60 @@
+---
+title: "Overlooking View"
+date: 2020-07-02T19:51:45Z
+draft: false
+author: ceetea
+summary: When someone saves you, you belong to them right?
+---
+
+<figure>
+<img src="/img/2020/07/overlooking-view-1.jpg" alt="">
+<figcaption>Original image by Tamaki | <a href="https://twitter.com/ta_ma_ky/status/1276090540954578945">Twitter</a> | Artist links: <a href="pixiv.me/ta_ma_ky">Pixiv</a>, <a href="https://ta-ma-ky.tumblr.com">Tumblr</a></figcaption>
+</figure>
+
+When someone saves you, you belong to them right? They don’t own you, but it’s something more than a debt. My thoughts always drifted towards that idea when I thought of her.
+
+“We shouldn’t be up here you know.” Several heartbeats before, she’d silently ascended the water tower and just stared out at the sky with me.
+
+“I know.” I sat down, pulling my skirt underneath me. The water tower still radiated the heat of the day. “I just wanted to watch the storm.”
+
+“It’ll be a big one.” She gently placed her flute bag down before kneeling parallel to it, next to me. “What did you want to talk about?”
+
+I’d asked her to meet me here. Only fair I suppose. I brushed imaginary dust from the tops of my thighs and imagined what it was like inside one of those building cloudfronts.
+
+“It- it’s graduation soon.” I eventually managed.
+
+“Somehow we both managed to pass our exams.” A smile, sunshine at sunset.
+
+“I know we’re both going to different universities... but I wanted to tell you something before we did.”
+
+She audibly gasped. “A confession of love! My word, I hadn’t prepared myself” she said with feigned surprise. I punched her - lightly - in the arm.
+
+“Ugh! Now you’ve made this weird!” I hugged my knees and frowned off into the distance, courage soured to frustration.
+
+With a dainty cough and exaggerated politeness, she gestured for me to continue. I slung the embossed gold gift bag onto her lap.
+
+“Do you remember the day that you ran into me?” Her hands folded neatly over the present.
+
+“I believe you’re misremembering walking into me.” Her lecturing voice.
+
+“You... never asked me where I was going, or why I didn’t have my school bag.” In the silence I thought I could hear the hum of the cell towers down below, the sound of someone making a call.
+
+“Maybe you suspected,” I continued “and that’s why you said what you did. But I need to tell you that it meant everything to me. Every day after that was like following a firefly in the night.” I smiled at the thought, and looked down at my own hands, restless.
+
+“You tried to get me to play the flute with you but I was so awful at it that I didn’t dare show my face at practice. I spilled miso soup all over your cat when I stayed at your house. Oh and then-” This wasn’t how I wanted to say this. I stopped mid-sentence, not daring to look over at her. I waited for the words to surface.
+
+“Since we became friends it’s like I can believe again - in people, in school, in- in me. I can be who I am today because I met you. And I will dearly miss you, in ways that I don’t think have words.”
+
+I knew I was crying but didn’t know when I’d started. I snuck a glance at her, the little paper gift bag now dotted with damp patches. She punched me - hard - in the arm. Harder than I thought her dainty little wrists and manicured hands could muster.
+
+“How am I supposed to respond to that?” She exclaimed, somewhere between a sob and laughter. We both laughed, the evening breeze cool where the tears clung. “You know we’ll still see each other right?”
+
+“I know.” I smiled, the gesture not reaching my eyes, the weight of reality between us.
+
+Would I meet anyone who accepted me like she did? Would I become the kind of person who no longer thought of her?
+
+“Can I open it?”
+
+“Of course,” I managed. I didn’t feel any kind of relief having told her any of this. Selfish really, to unburden and steer us off track in the little time we had left. The city murmured unintelligible below us. I felt rain on my face.
+
+“It’s beautiful.”
